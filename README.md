@@ -1,1 +1,0 @@
-# Lachumi-Studio
